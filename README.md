@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PCMasterRays
 - 👀 I’m interested in HID's and Hobby-coding
-- 🌱 I’m currently learning how to learn to code
+- 🌱 I’m currently learning the World's Best Carbonara (according to Italians)
 - 💞️ I’m looking to collaborate on some sort of miracle
 - 📫 How to reach me: theres_no_reason_to.txt
 
